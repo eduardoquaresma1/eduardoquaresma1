@@ -1,4 +1,4 @@
-## Hire 👋
+sobre mim.. meu nome é Eduardo e tenho 17 e nasci em Diadema sou um pouco estressado mas sou uma pessoa bastante comunicativa, e gosto de passar meu tempo com meus amigos e familiares, eu trabalho como auxiliar de produção, lá fazemos cabos de igniçao e cabos de vela e plugs de carregador, e gosto muito de trabahar lá, estudo na escola estadual Padre Anhcieta.    
 
 <!--
 **eduardoquaresma1/eduardoquaresma1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
